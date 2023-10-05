@@ -1,5 +1,5 @@
 
-
+![log-signature-email](https://github.com/switchcode-fr/assets/assets/276832/f43a27dc-914d-489e-807e-5aa215709411)
 
 ![Logo transparent 180x100](https://github.com/switchcode-fr/assets/assets/276832/3b378082-5ebb-43d5-9d31-2b0ba31d6774)
 
